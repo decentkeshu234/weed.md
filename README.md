@@ -3,7 +3,7 @@
 ### Go green Go high.
 ### “Why is marijuana against the law? It grows naturally upon our planet. Doesn’t the idea of making nature against the law seem to you a bit… unnatural?” — Bill Hicks
 
-![weed](https://pngimg.com/uploads/cannabis/cannabis_PNG47.png)
+![weed](https://pngimg.com/uploads/cannabis/cannabis_PNG75.png)
 
 > ## Top 10 Health Benefits of Cannabis
 
@@ -61,3 +61,4 @@ When used alongside THC, CBD helps balance the effects and takes the edge off by
 
  ### Thank You !
  ### “Whatever I do, I do it better stoned.”
+ 
