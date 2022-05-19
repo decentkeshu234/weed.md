@@ -59,6 +59,7 @@ CBD has been shown to be anti-inflammatory, it reduces anxiety, and it even redu
 
 When used alongside THC, CBD helps balance the effects and takes the edge off by reducing the odds of unpleasant side effects. New consumers of cannabis should strongly consider finding strains that have more rather than less CBD. Balanced strains usually contain about a 1:1 ratio of THC and CBD, making them perfect for novices.
 
- ### Thank You !
- ### “Whatever I do, I do it better stoned.”
- 
+### “Whatever I do, I do it better stoned.”
+ Thank You !
+ -------------
+
