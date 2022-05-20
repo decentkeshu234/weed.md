@@ -1,4 +1,4 @@
-# weed.md.
+# weed a herb 
 ### This environment day make a pledge to go green.
 ### Go green Go high.
 ### “Why is marijuana against the law? It grows naturally upon our planet. Doesn’t the idea of making nature against the law seem to you a bit… unnatural?” — Bill Hicks
